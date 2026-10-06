@@ -13,12 +13,17 @@
 
 
 
-ㅤㅤ            ㅤ【   # 𝗂𝗇𝖿𝗈 !     】    ㅤ  ㅤ    ㅤ      ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ   ㅤㅤㅤ         ㅤㅤ            ㅤㅤ­【   # pt permissions !     】
 
-──    ㅤ  ㅤ    ㅤ  ㅤㅤ      ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ   ㅤㅤㅤ            ㅤㅤ    ㅤ  ㅤ   ㅤㅤ──
+
+ㅤㅤㅤㅤ         ㅤ<img width="25" height="25" alt="ddcahca-e73160c5-a190-413a-9a27-f48443f9a167" src="https://github.com/user-attachments/assets/7762a66d-4ab3-4ba2-b475-a27b46cc6065" />    ㅤ  ㅤ    ㅤ      ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ ㅤ         ㅤ             ㅤㅤㅤ      ㅤ             ㅤㅤ            ㅤㅤ<img width="25" height="25" alt="ddcahca-e73160c5-a190-413a-9a27-f48443f9a167" src="https://github.com/user-attachments/assets/aef93650-4938-41d8-97b4-da53eea153e7" />
+
+
+ㅤㅤ            ㅤ【   # 𝗂𝗇𝖿𝗈 !     】    ㅤ  ㅤ    ㅤ   ㅤㅤ  ㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ   ㅤㅤㅤ       ㅤ            ㅤㅤ            ㅤㅤ­【   # pt permissions !     】
+
+──    ㅤ  ㅤ    ㅤ  ㅤㅤ      ㅤ ㅤ            ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ   ㅤㅤㅤ            ㅤㅤ    ㅤ  ㅤ ㅤㅤ──
 
    
-ke (kk-uh) / coco, of-age, they/them   ㅤ  ㅤ    ㅤ  ㅤㅤ           ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ        ㅤㅤㅤc+h, int freely ! NV/NC sometimes. 
+ke (kk-uh) / coco, of-age, they/them   ㅤ      ㅤ  ㅤㅤ          ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ        ㅤㅤㅤc+h, int freely ! NV/NC sometimes. 
 
-eng/tag,             ㅤㅤ          ㅤ    intj 1w2,   ㅤ    GMT  +8   ㅤ  ㅤ                       ㅤ  ㅤㅤ           ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ                    ㅤ                         ㅤvv selective adding. 
+eng/tag,             ㅤㅤ          ㅤ    intj 1w2,   ㅤ    GMT  +8   ㅤ  ㅤ                     ㅤ  ㅤ          ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ                    ㅤ                     ㅤvv selective adding. 
 
