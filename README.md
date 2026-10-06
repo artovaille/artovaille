@@ -10,3 +10,15 @@
 ㅤㅤㅤㅤ ㅤㅤ           ㅤ       ㅤㅤ             ㅤ       ㅤㅤ ㅤ       ㅤㅤ             ㅤㅤ                ㅤㅤ 🥒ㅤ𓈒ㅤㅤ      ⋅   ﹫  ╱ ㅤ   keㅤㅤ౨౿
  
 ---
+
+
+
+ㅤㅤ            ㅤ【   # 𝗂𝗇𝖿𝗈 !     】    ㅤ  ㅤ    ㅤ      ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ   ㅤㅤㅤ         ㅤㅤ            ㅤㅤ­【   # pt permissions !     】
+
+──    ㅤ  ㅤ    ㅤ  ㅤㅤ      ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ            ㅤㅤ                ㅤㅤ   ㅤㅤㅤ            ㅤㅤ    ㅤ  ㅤ   ㅤㅤ──
+
+   
+ke (kk-uh) / coco, of-age, they/them   ㅤ  ㅤ    ㅤ  ㅤㅤ           ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ        ㅤㅤㅤc+h, int freely ! NV/NC sometimes. 
+
+eng/tag,             ㅤㅤ          ㅤ    intj 1w2,   ㅤ    GMT  +8   ㅤ  ㅤ                       ㅤ  ㅤㅤ           ㅤㅤ                ㅤㅤ          ㅤㅤ                 ㅤ  ㅤㅤ                    ㅤ                         ㅤvv selective adding. 
+
