@@ -36,9 +36,8 @@ eng/tag,             ㅤㅤ          ㅤ    intj 1w2,   ㅤ    GMT  +8   ㅤ  �
 ---
 
 
-ㅤㅤㅤㅤ ㅤㅤ           ㅤ       ㅤㅤ             ㅤ       ㅤㅤ ㅤ    ㅤ
-ㅤㅤㅤㅤ ㅤㅤ           ㅤ 
-
+Love all Binghe's, but Bingge.. My one and only scrimblo, my singular obsession, the sole sovereign of this one's heart,
+the one and only man for whom all other loves shall forever pale in comparison. My everything, my eternal devotion, my irreplaceable abomination. my dearest financial ruin, my beloved beyond reason, beyond salvation, beyond the limits of my already questionable sanity. Should time itself collapse, still shall I remain thy most devoted fool, waving a banner of undying affection with absolutely no shame, no dignity, and CERTAINLY no intention of recovering.
 
 ㅤ                       ㅤㅤ                        ㅤㅤ         ㅤ               ㅤㅤㅤㅤ                          ㅤ         <img width="99" height="56" alt="dbsd1au-60fb71c7-6083-4624-b3e6-13c4f56c0499" src="https://github.com/user-attachments/assets/f5667301-1f01-4956-af6b-9c70da23f79e" /><img width="99" height="56" alt="d4nhktw-7741171c-cc96-45f4-9028-f657cc45fac3" src="https://github.com/user-attachments/assets/e78d11b9-5bd4-4aaa-94c9-c3206af03770" /><img width="99" height="56" alt="dkgcxlv-ea36f7e3-c687-4931-be6c-68e6cf89c699" src="https://github.com/user-attachments/assets/95125a42-c0dd-414e-a58b-c90b6db7e5b1" />
 <img width="99" height="56" alt="pantone_15_0343_greenery_by_king_lulu_deer_dc6jyy4-fullview" src="https://github.com/user-attachments/assets/d69aae66-4bd4-4286-a08d-036947f5501f" /><img width="99" height="56" alt="d1k6par-11c47677-bb51-4ec7-ba35-394a2c56843a" src="https://github.com/user-attachments/assets/e4013cf0-80b0-4e9f-84a7-527227040f70" />
